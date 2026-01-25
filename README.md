@@ -5,7 +5,7 @@
 
 ---
 
-[## 🚀 [CLICK HERE TO VIEW FULL DOCUMENTATION](https:ciphers88.github.io/arab-beloot)](https://ciphers88.github.io/arab-beloot)
+[## 🚀 [CLICK HERE TO VIEW FULL DOCUMENTATION](https://ciphers88.github.io/arab-beloot)]
 
 ---
 
