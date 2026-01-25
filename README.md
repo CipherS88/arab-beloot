@@ -6,7 +6,6 @@
 ---
 
 ## 🚀 [CLICK HERE TO VIEW FULL DOCUMENTATION](https:ciphers88.github.io/arab-beloot)
-**👆 اضغط هنا لمشاهدة التوثيق الفني الكامل للمشروع**
 
 ---
 
